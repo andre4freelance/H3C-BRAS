@@ -70,4 +70,4 @@ LinkedIn post:
 <https://www.linkedin.com/posts/link-andre-bastian_pppoe-bras-vlan-activity-7277007112029790208-eYpM?utm_source=share&utm_medium=member_desktop&rcm=ACoAAD73JlUBty-p-mBfMEW0-O4j0sv-e_PRQvc>
 
 Facebook post:  
-<>
+<https://www.facebook.com/share/p/1BqX8eAUua/>
